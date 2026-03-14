@@ -25,7 +25,6 @@
 
 - 📫 How to reach me:  **Email: taleshiacofer@gmail.com LinkedIn: https://www.linkedin.com/in/taleshiacofer**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eoxdC9pBzAGUYb_3eaR9SAECpEDw4NXX/view?usp=sharing](https://drive.google.com/file/d/1eoxdC9pBzAGUYb_3eaR9SAECpEDw4NXX/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
